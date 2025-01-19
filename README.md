@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AllysonK8!
-- 👀 I’m interested in *art, design, anime, ml, and marvel.*
+- 👀 I’m interested in *art, design, anime, video games, and marvel.*
 - 📫 How to reach me: allysonlaus@gmail.com
 - 😄 Pronouns: he/she/they
 
